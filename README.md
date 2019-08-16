@@ -22,7 +22,10 @@ Cette inconnu lui proposa un verre.
 ## Malgaard tenta alors de mieux se faire comprendre :" en fait je suis venu t'arvertir d'un grand danger qui est ..."
 
 
-La statue rencontre la salade de fruit et font une balade sur l'avenue.
+
+La statue rencontre la salade de fruits et font une balade sur l'avenue.
 Le coeur ouvert ils disent bonjour à la patate et aux frites.
 la statue dit: eiloj,eiloj,eiloj, tiurf ed edalas.
+
+Elle ne parlait pas français, mais Finlandais! normal pour une sud américaine pure souche qui venait à peine de traverser l'atlantique en quête d'une bonne situation et surtout d'un bon parti. 
 
