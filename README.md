@@ -11,3 +11,6 @@ Cette inconnu lui proposa un verre.
 3. Seulement, un jour d'avril 1978, il s'est passé quelque chose d'*incroyable*...
 ![Statue qui parle](http://img.over-blog-kiwi.com/300x300/1/41/70/69/20160214/ob_f803a4_la-statue-et-apple.JPG)
 >>>>>>> b98abf833536ca531432ac5bff8ac110db60f971
+
+## Un individu louche nommé "Malgaard" possédant un sabre de grande qualité
+## s'approcha de notre héros et lui sussura ces mots à l'oreille : ... 
