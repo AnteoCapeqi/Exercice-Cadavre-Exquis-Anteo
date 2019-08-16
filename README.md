@@ -34,3 +34,4 @@ la phrase bete
 <br/>*"A votre place je me munierais d'un miroir pour faciliter la vie aux gens qui interagissent avec vous. Cette boutique en vend des très jolis !"*
 <br/>
 Mais quand on y pense, cette statue me laisse de marbre, j'ai même l'impression qu'au final, bien qu'elle n'aie pas sa langue dans sa poche, elle pense sûrement sortir de la cuisse de Jupiter !
+et pourtant ...
