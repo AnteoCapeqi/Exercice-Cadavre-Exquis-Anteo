@@ -14,3 +14,8 @@ Cette inconnu lui proposa un verre.
 
 ## Un individu louche nommé "Malgaard" possédant un sabre de grande qualité
 ## s'approcha de notre héros et lui sussura ces mots à l'oreille : ... 
+*ajout ismail*
+## " Qu'est ce que tu regarde?...avec ta grosse bxxx ? "
+## Notre héros lui répondi :" Qu'est ce que tu me veux ? Te battre ? "
+
+## Malgaard tenta alors de mieux se faire comprendre :" en fait je suis venu t'arvertir d'un grand danger qui est ..."
