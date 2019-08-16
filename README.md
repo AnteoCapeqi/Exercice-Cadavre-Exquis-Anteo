@@ -14,3 +14,7 @@ Cette inconnu lui proposa un verre.
 
 ## Un individu louche nommé "Malgaard" possédant un sabre de grande qualité
 ## s'approcha de notre héros et lui sussura ces mots à l'oreille : ... 
+
+La statue rencontre la salade de fruit et font une balade sur l'avenue.
+Le coeur ouvert ils disent bonjour à la patate et aux frites.
+la statue dit: eiloj,eiloj,eiloj, tiurf ed edalas.
