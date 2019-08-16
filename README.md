@@ -34,3 +34,12 @@ la phrase bete
 <br/>*"A votre place je me munierais d'un miroir pour faciliter la vie aux gens qui interagissent avec vous. Cette boutique en vend des très jolis !"*
 <br/>
 Mais quand on y pense, cette statue me laisse de marbre, j'ai même l'impression qu'au final, bien qu'elle n'aie pas sa langue dans sa poche, elle pense sûrement sortir de la cuisse de Jupiter !
+
+<h1 id="markdowntales">Il ètais une fois les îles</h1>
+
+<h4 id="Destinationsablefineteauturquoise">Destination sable fin et eaux turquoise; un moment hors du temps...</h4>
+
+Un après midi comme les autres, cheveux aux vents et pieds dans l'eau, j'adimirasse cette vue plus que plaisante en dépit des obligations qui m'appelerons demain.
+Cette instant hors du temps, ce moment unique et ce temps transcendant, cette chaleur voluptueuse et se soleil carressant chaque parcelle de notre corps ne peut que nous rappeler a quelle point il est important de temps en temps de prendre le temps de se laissé berccer par ces moments intemporelet plus que précieux...
+<p><img src="https://images.pexels.com/photos/248797/pexels-photo-248797.jpeg?auto=compress&amp;cs=tinysrgb&amp;h=750&amp;w=1260" alt="image" /></p></li>
+
