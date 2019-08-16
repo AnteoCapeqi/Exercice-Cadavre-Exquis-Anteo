@@ -1,6 +1,6 @@
 # Les fleurs de Bhaal
-## Notre heros pris son épée pour poufendre le demons
-## Quand soudain!Un inconnus lui offre des fleurs.
+## Notre heros pris son épée pour poufendre le demon
+## Quand soudain!Un inconnu lui offre des fleurs.
 ![alt text][logo]
 [logo]: https://p5.storage.canalblog.com/52/67/845308/87085992.jpg
 
