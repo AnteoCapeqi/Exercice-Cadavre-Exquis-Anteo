@@ -26,3 +26,10 @@ La statue rencontre la salade de fruit et font une balade sur l'avenue.
 Le coeur ouvert ils disent bonjour à la patate et aux frites.
 la statue dit: eiloj,eiloj,eiloj, tiurf ed edalas.
 
+
+La statue rencontre la salade de fruit et font une balade sur l'avenue.
+Le coeur ouvert ils disent bonjour à la patate et aux frites.
+la statue dit: eiloj,eiloj,eiloj, tiurf ed edalas.
+
+Shrek arrive et avait faim et donc il commença a manger la salade de fruit.
+La patate et la frite prirent peur et sont devenue de la purée de patate.
