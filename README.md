@@ -1,4 +1,4 @@
-# Les fleurs de Bhaal 
+# Les fleurs de Bhaal
 ## Notre heros pris son épée pour poufendre le demons
 ## Quand soudain!Un inconnus lui offre des fleurs.
 ![alt text][logo]
@@ -13,7 +13,7 @@ Cette inconnu lui proposa un verre.
 
 
 ## Un individu louche nommé "Malgaard" possédant un sabre de grande qualité
-## s'approcha de notre héros et lui sussura ces mots à l'oreille : ... 
+## s'approcha de notre héros et lui sussura ces mots à l'oreille : ...
 
 *ajout ismail*
 ## " Qu'est ce que tu regarde?...avec ta grosse bxxx ? "
@@ -33,3 +33,4 @@ la phrase bete
 <br/>Il lui désigne une échope de l'autre côté de la rue.
 <br/>*"A votre place je me munierais d'un miroir pour faciliter la vie aux gens qui interagissent avec vous. Cette boutique en vend des très jolis !"*
 <br/>
+Mais quand on y pense, cette statue me laisse de marbre, j'ai même l'impression qu'au final, bien qu'elle n'aie pas sa langue dans sa poche, elle pense sûrement sortir de la cuisse de Jupiter !
