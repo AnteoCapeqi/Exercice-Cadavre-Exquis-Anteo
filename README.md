@@ -27,3 +27,9 @@ Le coeur ouvert ils disent bonjour à la patate et aux frites.
 la statue dit: eiloj,eiloj,eiloj, tiurf ed edalas.
 
 la phrase bete
+<br/>
+<br/>Un lampadaire croise leur chemin. Il s'adresse à la statue :
+<br/>*"Dites-donc mon brave, vous êtes tout inversé"*
+<br/>Il lui désigne une échope de l'autre côté de la rue.
+<br/>*"A votre place je me munierais d'un miroir pour faciliter la vie aux gens qui interagissent avec vous. Cette boutique en vend des très jolis !"*
+<br/>
